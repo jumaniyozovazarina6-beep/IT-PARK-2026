@@ -1,4 +1,5 @@
-# IT-PARK-2026###  I'm JUMANIYOZOVA ZARINA👋
+
+I'm JUMANIYOZOVA ZARINA👋
 
 <p align="center">
   
